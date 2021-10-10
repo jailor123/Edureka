@@ -1,2 +1,0 @@
-# Edureka
-faheem
